@@ -1,1 +1,1 @@
-# School Website-2
+# ayushrane.github.io
